@@ -1,1 +1,1 @@
-# Elen Petrosyan 
+# Econometrics2020
